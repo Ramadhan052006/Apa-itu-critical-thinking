@@ -1,0 +1,2 @@
+# Apa itu critical thinking?
+ 
